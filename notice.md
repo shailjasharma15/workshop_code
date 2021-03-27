@@ -1,5 +1,5 @@
-### GURU NANAK DEV ENGIEERING COLLEGE, LUDHIANA  ###
-Ref No. ______________                                                        Date :___________________
+### GURU NANAK DEV ENGIEERING COLLEGE, LUDHIANA ###
+Ref No. ______________ &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;                                                     Date :___________________
 
 
 HODs
