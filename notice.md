@@ -1,4 +1,4 @@
-### <centre> GURU NANAK DEV ENGIEERING COLLEGE, LUDHIANA </centre> ###
+### GURU NANAK DEV ENGIEERING COLLEGE, LUDHIANA  ###
 Ref No. ______________                                                        Date :___________________
 
 
